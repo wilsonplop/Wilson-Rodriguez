@@ -1,2 +1,0 @@
-# Wilson-Rodriguez
-Wilson-Rodriguez
